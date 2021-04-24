@@ -1,1 +1,1 @@
-Like code
+Likes code
